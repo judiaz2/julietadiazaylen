@@ -21,5 +21,5 @@ Me considero una persona resiliente, estudiosa, trabajadora, optimista y respons
 ### Educación📚
 > 2017 - 2023: Tecnicatura en Programación, Escuela Experimental PRoA. San Francisco, Córdoba.👩‍💻 <br>
 > 2017 - 2023: Ciclo Artistico Vocacional Avanzado en Saxofón y Guitarra, Conservatorio Superior "Arturo Berutti". Saa Francisco, Córdooba. 🎷🎸
-### Idiomas
+### Idiomas 🌎
 Poseo un nivel **_Intermedio de Inglés_**. (Escritura,Lectura y Conversación). Puedo mantener una charla con lenguaje básico.
